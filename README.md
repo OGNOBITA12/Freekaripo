@@ -3,17 +3,17 @@
 ＪＡＩ ＳＨＲＥＥ ＲＡＭ
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
-── ❖ | Ꝛɪsʜυ ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
+── ❖ | ➻❥⏤͟͟͞͞𝙉𝙊𝘽𝙄𝙏𝘼⎯ꨄ 𓆩🖤𓆪 ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <h2 align="center">
 <p align="center">
   <img src="https://github.com/RishuBot/RishuManagement/blob/main/Rishu.gif">
 </p>
-    ── ❖ | Ꝛɪsʜυ ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
+    ── ❖ | ➻❥⏤͟͟͞͞𝙉𝙊𝘽𝙄𝙏𝘼⎯ꨄ 𓆩🖤𓆪 ꭙ sᴧɴᴧᴛᴧɴɪ | ❖ ──
     <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 </h2>
 <p align="center">
-  <img src="https://telegra.ph/file/84a0edc74f695b4ae46fd.jpg">
+  <img src="https://graph.org/file/6c9bfb9839c523d37eb32-36ed597b650c03c916.jpg">
 </p>
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
